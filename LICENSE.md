@@ -1,4 +1,4 @@
-# 
+# vip Shotcut for PC | Shotcut for Windows Panel | color-correction + real-time-preview offers the most advanced Shotcut for PC | Shotcut for Windows panel, with color-correction
 
 
 
